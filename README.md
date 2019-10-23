@@ -36,4 +36,4 @@
 
 
 ###End
-Super easy to use it...!! Enjoy!!
+Super easy to use it...!! Enjoy your day!!
